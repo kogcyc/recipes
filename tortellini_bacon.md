@@ -1,4 +1,4 @@
-    1½ tablespoons unsalted butter,plus more if needed
+    1.5 tablespoons unsalted butter,plus more if needed
     4 slices prosciutto (about 2 ounces)
     1 shallot, finely chopped
     16 to 20 ounces refrigerated cheese tortellini
