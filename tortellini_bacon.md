@@ -1,10 +1,10 @@
-    1½tablespoons unsalted butter, plus more if needed
-    4slices prosciutto (about 2 ounces)
-    1shallot, finely chopped
+    1 ½tablespoons unsalted butter,plus more if needed
+    4 slices prosciutto (about 2 ounces)
+    1 shallot, finely chopped
     16 to 20ounces refrigerated cheese tortellini
-    2cups (10 ounces) frozen peas (no need to thaw)
-    1cup chicken broth
-    1cup heavy cream
+    2 cups (10 ounces) frozen peas (no need to thaw)
+    1 cup chicken broth
+    1 cup heavy cream
     ¼ teaspoon ground nutmeg (optional)
     Salt and black pepper
     Zest and juice of ½ lemon (about 1½ teaspoons zest plus 1 ½ tablespoons juice)
